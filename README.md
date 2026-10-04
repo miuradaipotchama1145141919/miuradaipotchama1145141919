@@ -1,16 +1,13 @@
-## Hi there 👋
-
-<!--
-**miuradaipotchama1145141919/miuradaipotchama1145141919** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# 野獣（鈴木）「ぬわあああああん疲れたもおおおおおん」
+MUR「ﾁｶﾚﾀ…」
+野獣「いやもうキツかったっすね今日はー」
+MUR「あぁもう今日は…すっげえキツかったゾ～」
+KMR「ホントに…」
+野獣「何でこんなキツいんすかねぇ～も～…」
+KMR「キツいですね…」
+野獣「やめたくなりますよなんか部っ活ぅ～」
+MUR「どうすっかな～俺もな～」
+MUR「ハァ～…」
+野獣「＊＊＊早いっすね…」
+MUR「シャツがもう…ビショビショだよ」
+KMR「ウフフッ（笑）」
